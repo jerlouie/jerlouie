@@ -2,4 +2,5 @@
 - Jeremy Louie (He/Him)
 - Computer Science and Information Security & Policy at Chapman University, 2028
 - San Francisco and Orange, California
+- jerlouie@chapman.edu & jeremy.louie8@gmail.com
 - https://www.linkedin.com/in/jeremy-louie-6baa88259/
